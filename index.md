@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Hello everybody
 
-Maybe say a some things about yourself.
+This is my blog. Nice to meet you
 
-Or maybe what you plan to blog about.
+This is where I can share anything I feel enjoy!!!
